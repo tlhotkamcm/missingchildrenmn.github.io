@@ -8,6 +8,7 @@ layout: home
 
 ![]({{ site.url }}/assets/MCM-Logo-256PX-high.jpg)
 
+
 The mission of Missing Children Minnesota is to help in locating missing children; to provide advocacy and support services to families of missing children and to provide information and prevention education to the public regarding missing children and runaways.
 
 Since 1983 Missing Children Minnesota has helped more than 3500 families and children throughout the Midwest by providing 24-hour advocacy and support services, as well as helping families at risk for abduction create individualized prevention plans.

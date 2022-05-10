@@ -10,67 +10,72 @@ permalink: /support/
 
 Here are just a few ways to become involved!
 
-### Volunteer
+### **Volunteer**
 
-We always have projects and special needs that can be filled by volunteers. Whether you have a few hours every month or every week, there are many ways you can help. In addition, many companies offer paid time off for their employees to volunteer — check with your human resources or community relations department. *See current volunteer opportunities at the bottom of this page…
+We always have projects and needs that can be filled by volunteers. Whether you have a few hours every month or every week, there are many ways you can help: 
 
-### Make a Gift
+* Organizers - Organize a fundraiser or educational event! There is a real gift to running an event that people enjoy and where people give generously or take the opportunity to come and learn how to make kids safer!
+* Social Media Content Creators -Are you a graphic artist or simply gifted at creating attention-grabbing infographics, appealing educational pamphlets, TicToks that draw eyeballs, or Instagram posts that speak volumes? We would love to have you volunteer with us! We have Canva, and just need people with time and talent.
+* Poster Partners - Do you like to walk around your neighborhood? Do you have a gift for talking to people? Are you reliable and detail-oriented? We would love to have you distribute posters and flyers in your area AND (just as important) take them down again when children are located!
+* Educational Program Ambassadors and Presenters - Are you passionate about child safety education, and making community connections? We could use a few messengers to get the word out about our educational programs, and a few good people willing to get up and present! Training is provided. We will make sure you have what you need to do a great presentation!
+* Mobile app developer - We have an app in development that needs some more talent to take it across the finish line!
 
-Missing Children Minnesota is a non-profit organization. As such, we are always in need of donations — both monetary and in-kind. Monetary gifts can be mailed to: 416 East Hennepin Avenue Suite # 217, Minneapolis, MN 55414
+Get started as a Missing Children Minnesota Volunteer today! Call (612)334-9449 or send an email to General.Info@missingchildrenmn.com
 
-* Just Give: https://www.justgive.org/basket?acton=donate&ein=41-1478143&authorized_request_token=4B7940C2-3EB6-9E16-198D-B787540CDB10
+Many companies offer paid time off for their employees to volunteer, or even donation matching — check with your human resources or community relations department to see how your employer may amplify your gifts of time or money.
+
+
+### **Give a Gift**
+
+Missing Children Minnesota is a non-profit organization. As such, we are always in need of donations — both monetary and in-kind. As an all-volunteer organization, we keep our overhead costs low and make the most of every dollar as we pursue our mission and work.
+
+Gifts can be mailed to: P.O. Box 1111, Minnetonka, MN 55345
+
+There are also a number of ways that you can donate online:
+
+* AmazonSmile https://smile.amazon.com
 * GiveMN.org: https://www.givemn.org/organization/Missing-Children-Minnesota
-* Razoo: https://www.razoo.com/us/story/Missing-Children-Minnesota
+* PayPal: https://www.paypal.com/fundraiser/charity/1880289
+* Stock Donator:			https://stockdonator.com/stock-information/?oid=c8fe73
 
-### Designate us in your workplace giving campaign
+### **Designate us in your workplace giving campaign**
 
-MCM is a member of Community Shares MN, the second-largest workplace giving campaign in the Twin Cities area. You can donate to us through Community Shares MN, or any other giving campaign, simply by designating Missing Children Minnesota as the recipient of your donation. In addition, please check to see if your company offers a matching gift program before you donate!
+Missing Children Minnesota is available as an option for many workplace giving platforms. You can give from your workplace simply by designating Missing Children Minnesota as the recipient of your donation. In addition, please check to see if your company offers a matching gift program before you donate!
 
-### Join Amazon Smile
+### **Choose us on Amazon Smile**
 
 Designate us as your charity of choice http://smile.amazon.com.  Amazon Smile will donate .5% of every dollar you spend with them to support our programs and services. We are already benefitting from many supporters through this program, and every little bit helps!
 
-### Make an In-Kind Donation
-
-In addition, MCM maintains a wish list of items that we need to help us continue in our mission. Please contact MCM to find out our current list of items we need. MCM accepts items in good, working condition. Please contact us before sending an in-kind donation so that we can thank you properly!
-
-### “Like” us on Facebook
+### **“Like” us on Facebook, "Follow" us on Twitter**
 
 Follow our content, and join in the discussion. https://www.facebook.com/Missing-Children-Minnesota-164298202632/?ref=tn_tnmn
 
-### Here is a small sampling of projects completed by volunteers in the last year
+SHARE the stories of the missing, and make them public on your page. Public awareness campaigns have helped find thousands of children across the country.
 
-* Redesign of our web site
-* Began designing, coding and testing our Mobile Kid’s ID Kit
-* Coordination of sponsors, gifts and donors for the annual Mystery Dinner and Golf Classic.
-* Cooking and clean up at the annual Mystery Dinner
-* Complete inventory of all of MCM’s educational materials
-* Relabeling of books with updated phone listings and addresses
-* Accounting and completion of our annual 1099
-* Manning resource tables for community events.
+Another opportunity to help on Facebook is to "donate" your birthday, or create a fundraiser for us. Here is how to do that!
 
-## Current Opportunities
+Create a nonprofit fundraiser
 
-Currently, MCM has these opportunities for volunteers available.
+On your computer, login to Facebook.
 
-### Part Time Office Manager
+On the left, click fundraiser heart coin Fundraisers.
 
-Perfect for a retired individual or stay-at-home-mom with school age children!
+Tip: If you don't see Fundraisers on the left, then click See more.
 
-We’re looking for someone who would be willing to donate 10-20 hours per week helping us answer phones, write correspondence, take care of mailing and complete general office administration tasks. Must be familiar with Macintosh or willing to learn! Hours are flexible.
+On the left, click Raise money.
 
-### Archival Specialist
+Click Nonprofit.
 
-MCM celebrated its 20th Anniversary in 2004 and as an older organization, we have many old materials that need to be transferred into a searchable archive or file. Newsletters, press clippings and many other hard-copy materials are taking up space and need to be organized and purged. This project will take approximately 10-20 hours to complete (possibly less for a really organized individual!) and the hours are flexible. Must be comfortable sorting and filing.
+You can either scroll to find the nonprofit you want to raise money for or
+type into the search bar to find the nonprofit you want to raise money for
 
-### Library Clerk
+Select the nonprofit.
 
-MCM is designated as a special collection because of the extensive number of materials that we possess about missing children, personal safety and child abduction. Although these items are loosely organized, they have never been inventoried or categorized. This would be an excellent opportunity for a library science student or library professional. We estimate that the project would take between 5-10 hours.
+On the left, enter:
 
-### Scrapbookers
+The goal amount of money you want to raise and the currency you want the funds to be in
 
-We have many photos and mementos of our work and our accomplishments that we would like to organize into scrapbooks that help tell our story. Some work has been started on this, and we would love to see these memories come out of the drawers and boxes and find a place where they can speak to our visitors!
+Click Create.
 
-### Other
+You’ll see a screen pop up where you can invite your friends to donate to your fundraiser, share your fundraiser in your news feed, or donate to the fundraiser yourself.
 
-We have many other smaller projects that can be fulfilled by volunteers! Please contact us to see how you can help!
