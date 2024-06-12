@@ -10,7 +10,7 @@ permalink: /resources/
 
 Always start looking for a missing child by talking to your local police department. Listed below are a number of on-line resources for help locating a missing child.
 
-* Minnesota Department of Public Safety
+* [Minnesota DPS:BCA Missing and Unidentified Person's Clearing House](https://dps.mn.gov/divisions/bca/bca-divisions/administrative/Pages/missing-unidentified-persons.aspx)
 * National Center for Missing and Exploited Children
 * 1-800-THE-LOST or 1-800-843-5678
 * Cyber Tip Report
